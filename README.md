@@ -6,11 +6,7 @@
 
 [contact@pslscout.com](mailto:contact@pslscout.com)
 
----
-
 ## Privacy policy
-
-## Privacy Policy — PSL Scout
 
 **Company legal name:** PSL SCOUT CORP (“PSL Scout”, “we”, “us”)  
 **Brand name:** PSL Scout  
